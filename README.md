@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @LuJrz (DreamerBoy)
+- 👋 Hi, I’m @dreamerboy (Luis Edgar Contreras Juárez )
 
 
 <!---
